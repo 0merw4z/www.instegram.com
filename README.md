@@ -1,1 +1,1 @@
-# www.instegram.com
+# www.inategram.com
